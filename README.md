@@ -1,4 +1,4 @@
-![github - capas (1)]()![Design sem nome](https://user-images.githubusercontent.com/109918729/235561472-7ee1dd50-965c-4444-80bb-8f84c1dbfa4e.png)
+![Design sem nome](https://user-images.githubusercontent.com/109918729/235561472-7ee1dd50-965c-4444-80bb-8f84c1dbfa4e.png)
 
 
 
